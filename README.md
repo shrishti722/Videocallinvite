@@ -1,3 +1,3 @@
-✨[doyouwannagooutwithme.com](http://doyouwannagooutwithme.com) 
+✨[doyouwannavideocall] 
 
-A website to invite your lover for a date 🥰
+A website to invite your friends for a catchup video call.
